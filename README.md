@@ -1,1 +1,0 @@
-# eduardokhotnikov.github.io
